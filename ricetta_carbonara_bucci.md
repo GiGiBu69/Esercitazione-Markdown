@@ -1,7 +1,17 @@
-_23/11/2023, 10:00_  
 
+# MEZZE MANICHE RIGATE N. 122 ALLA CARBONARA.
 ![Mezze maniche rigate n. 122 alla carbonara - Voiello](https://www.cuocogoloso.it/wp-content/uploads/2022/04/carbonara.jpg) 
 
+***
+
+20 min  4 Persone
+
+Facile
+
+***
+Quando la più famosa ricetta romana incontra la  
+pasta più autenticamente napoletana, è impossibile  
+resistere alla tentazione.  
 ***
 
 **INGREDIENTI:**
@@ -13,21 +23,8 @@ _23/11/2023, 10:00_
 - 5 tuorli d’uovo
 - 280 g guanciale
 - Pepe nero q.b.
-  
-***
-
-# MEZZE MANICHE RIGATE N. 122 ALLA CARBONARA.
-
-***  
-20 min  4 Persone
-
-Facile
 
 ***
-
-Quando la più famosa ricetta romana incontra la  
-pasta più autenticamente napoletana, è impossibile  
-resistere alla tentazione.  
 
  ## PREPARAZIONE
  >Eliminare la cotenna del guanciale, tagliare a
